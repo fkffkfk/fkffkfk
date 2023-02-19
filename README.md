@@ -1,5 +1,5 @@
 ### Hi there ~  my name is  Young-ah,Yoon👋👋
-![댄스댄스](https://user-images.githubusercontent.com/110843552/219855237-cbc42ac4-eec0-44f4-a9ee-f7a330a58728.jpg)
+![룰루랄라움짤](https://user-images.githubusercontent.com/110843552/219963640-3350f909-240f-426e-b1cc-ee3dc4efa2ad.gif)
 
 🔭 I’m currently studying on Duksung women's university in grade 3. 
 
