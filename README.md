@@ -5,7 +5,7 @@
 
 🌱 I’m currently learning cyber security and computer engineering.
 
-🤔 I’m looking for help with finding goal. 
+🤔 why I pick 2 major why. 
 
 ⚡ Fun fact: I love my cats. First one is Rulloo and last one is Ralla.
 
